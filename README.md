@@ -152,4 +152,4 @@
 ![alt text](assets/PixPin_2025-08-16_20-20-43.png)
 
 ## 相关联系
- - [Telegram: https://t.me/U_BiuBiu](https://t.me/U_BiuBiu)
+ - [Telegram: https://t.me/U_BiuBiu](https://t.me/X_BiuBiu)
